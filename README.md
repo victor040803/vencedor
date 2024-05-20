@@ -13,3 +13,5 @@ utilizo esse espaço para minha  organizaçao e compartilhamento dos meu projeto
 alurastarestudante@email.com
 
 @alurastartestudante
+
+![](https://media1.tenor.com/m/4S9hWk6W15kAAAAC/brasil-spfc.gif)
